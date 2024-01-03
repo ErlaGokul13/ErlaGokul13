@@ -1,4 +1,4 @@
-![212284100-561aa473-3905-4a80-b561-0d28506553ee](https://github.com/ErlaGokul13/ErlaGokul13/assets/82972642/607b0a9b-fa05-4387-b04d-bbd25419ce72)
+
 
 ![215768208-3bf3dda8-eeea-40ee-a58b-f5ac529685bf](https://github.com/ErlaGokul13/ErlaGokul13/assets/82972642/4558d237-0127-42d5-99b4-45968989146f)
 
