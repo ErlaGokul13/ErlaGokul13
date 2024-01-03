@@ -1,6 +1,6 @@
 
 
-![215768208-3bf3dda8-eeea-40ee-a58b-f5ac529685bf](https://github.com/ErlaGokul13/ErlaGokul13/assets/82972642/4558d237-0127-42d5-99b4-45968989146f)
+
 
 
 <h1 align="center">Hi 👋, I'm Gokul</h1>
